@@ -127,19 +127,4 @@ Jedině takto lze poznat ještě vyšší tělesné.
 Chtějí se třást nekontrolovaně pouhým foukáním na loket.
 Ale nedají tomu dost, jsou to špatní - většinou submisivové.
 ***
-Dávné rituály čaje jsou NAŠE dávné rituály čaje? Kolikrát se čaj mi vrátil?
-Někdy se vrátí jako jinotaj, jakože stichneš něčím.
-Takový jsem měl rituál
-Projednou si uděláme čaj, ten čaj nás naostří, sedneme do známého křesla, vnímáme okolní svět jako Růži nebo Lišku. Já raději Lišky.
-Divoce rostou růže v mojí zahradě. 
-
-***af xiv Let go meditace
-A celou dobu, ten borec mlel mantru letgou, letgou, ale nebylo to úplně letgou, bylo to taky trochu, jako letsgou, spíš lecgou. přídech c.
-A to už dva roky nechodila s tím lingvistou.
-***
-Přemoci bolest a podobná témata
-
-V jádru má zášleh, křeč
-to pod tím jádrem pošleš preč.
-***
 Už jsem v mahamudře. Někdy v budoucnu vědci teda najdou spojení mezi vnímáním na vyšší úrovni DLENÍ v jiném místě vědomí. Nějak kontextově navážeme jinak na své nervstvo Zvratně, nezvratně.
