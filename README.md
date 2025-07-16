@@ -33,3 +33,113 @@ NTAT: Takže věci jako 24h v pytli s otvory a tak, o tom se nic nedozvíme?
 ODPOVĚĎ: Nerada bych, aby to působilo naivně, ale mám tyhle věci za svaté, nechci si o tom povídat.
 NTAT:
 Díky za rozhovor, Milado.
+***
+NTAT
+
+Většina účastníků seancí jsou lidé trochu odvážní, kteří se nicméně stydí.
+***
+Žárlivost si bere rukojmí v rozličných stádiích rozpolcenosti, aby se mohla pást na obou:
+Z jednoho se nažrat hněvu i vášně, z druhého pocitu moci i hanby.
+***
+Dávkování dechu
+
+Praktickou disciplínou je počítání, seriozní to nuda.
+Méně praktickou je "snění". Nepraktické je to, protože je to pomalé. Přímý přístup asi možná spíše umožní osvobození v tomto životě. Proto nesouhlasím s jak Donem Juanem, tak s Vartmanem.
+***
+Meditační noc s neklidným koncem
+Dělali jsme včera řízenou m., skupina klidná, bez potřeb ega.
+***
+Sebevědomí visí na stromě. Stejně tak jiné vlastnosti. Vartman či Radžníš - copak mi radíš.
+Radím ti letěti. rozletět srdce své jako pateticky, rozumíš? Klidně že pateticky.
+***
+Horkem tantry pohánět skrz dech sebe jako Kyborga.
+***
+Uchopení nejvyšší tantrajógy
+Tradice tantrajógy je tradice předávané praxe. Ne těchto keců, přesto ti, můj milý Narópo taky něco řeknu. Když je mysl všezahrnující, jak je na tom s časem? Na to upozornil Buddha. Neměl hodinky, btw.
+Rádi bychom viděli sami sebe středobodem, než že je to zcela fuk. Zůstává VNÍMÁNÍ - TO je tady a teď.
+Takto je determinováno.
+A ještě jistě mnohokrát jinak.
+*
+Jaké by mělo být ono vnímání?
+A jéje. Rozhodně ne ňáké. <kakíje -originál A.T.>
+Je tento drzý styl Adama Taše někomu podobný?
+Nepodobný?
+***
+Metodiky střízlivosti
+
+Potlačovat tantrickou extatiku?
+Obvykle se to v určité fázi dělá s přihlédnutím k Buddhově střední cestě. Užívat si znamená lnout k tomu. Závislost v širším slova smyslu - plyne z toho dukkha (utrpení, protože nejdeme za svým ale táhnou nás smysly, slasti, počitky).
+Jak to v mé fázi "buddhovství" (vůbec to neznamená, že jsem někde dále, mimochodem...) vypadá s ..
+***
+Zvědomuji, dávám do popředí vědomí
+Každý poryv orgasmu, nechť si kdykoli vybavím, nejen to.
+Jakoukoli chvíli.
+Orgasmem začni a nejdřív jej ovládni.
+-Úkol1: udělej se bez úsilí.
+-Úkol2: odečet sekund dolů i nahoru, toto učí partner.
+***
+Rozvíjen je vjem "kde jsi když jsi v limbu?" "Kde je tvá kontrola, když se sebou začneš hovořit jako s dítětem."
+Kde to je a taky JAK se tam dostáváš, skrz jaké mentální trní při tom kráčíš?
+Kráčím v ohni pekla vnitřního gulagu, který je současně zelenou krajinou pod sluncem červnové oblohy, kdy pojídáš maliny náhle zralé.
+***
+Princip odosobnění je podobný Pozorovateli.
+Mahámudrá je za Pozorovatelem, je to Vesmír, který tak jak tak je.
+Odosobnění je dobré cvičení, Solženicyn řekl, že jsme odpovědni za VŠE. Tohle říká, že toto VŠE jsme my.
+Otázka, jestli pěstovat vědomí košatého stromu, řeknu-li to metaforou. Je to další újezd, další tripping.
+..
+***Poznámky žáka 1
+Znovu apeloval na naši tělesnou symboliku, na mudru. Moje mudra je o rozumu i citu, které spojuji v gestu tření dlaní o dlaň. Prsty do toho nepletu. Je to jeden kroužek dlaně proti druhému.
+Dlouho jsem nemohl přijít na chuť rituálu šustní dlaně o druhou.
+Ale vím, že to otvírá k "Emanacím orla", jak je dle jeho slov nazývá Castaneda.
+***
+Proč si nepřiznat, že myslíme si na spoustu lidí, i zároveň.
+Protože stud, protože stín, tak to neventilujeme.
+Za tím je papiňák sebeocenění.
+Jaký je to pocit být stále odmítán?
+Asi tak jako se podkuřuje, lže Nádhernému.
+Z toho plynou rozdíly v moci.
+***
+Koncept mikrostavů:
+Když sebou trhá podbřišek při zastavení orgasmu, pohyb spasma přes neurony-a-kdovíco-kam-do-obsahu-vědomí v mysli navozuje stav, který bych nazval klidným supervzruchem.
+Chvíle před orgasmem - tento stav chce tantrik navodit zástupným rituálem, např. třením dlaní o sebe. Pak se to třeba naučí udělat jen pomyšlením, bez fyzického dráždění. Pozn FT: Guruovo vysmažení vždy předcházelo, samozřejmě.
+***
+Absurdní povaha racionalizace
+aneb podivná manipulativní povaha pozitivity
+
+V případě, kdy slyším např. Junga vyprávět o tom, jak je naše prožité "zkušeností", připomene mi to postoje lidí, kteří právě prošli nějakým školením pozitivního přístupu či terapie.
+Lže si to do kapsy totiž stejně.
+Mohu vykládat svoji zkušenost z odstupu stylem: Dalo mi to možnost se zamyslet nad sebou, otevřelo to moje reakce na negativní. Toť racionalizace.
+A že jich je spousta, uveďme další:
+"Co mě nezabije, mě posílí."
+"To nebyla má cesta."
+
+Nyní velká otázka: Jak vím, že je má dnešní interpretace/racionalizace ta správná? Tedy si o tom něco můžu myslet, to jednak - ale spíš - nějak se v tom CÍTIT. Jsem teď. A to bych měl mít pozitivitou pod dokonalou kontrolou.
+
+1. Nebude ta zítřejší nálada "správnější"?
+2. Vskutku se neovládám, prostě se neovládám dost.
+
+Ovládat své pocity lépe, strukturovaněji, přičemž bez úsilí.
+Ta studna je samozřejmě bezedná - toho, jak se cítit lépe.
+***In Memoriam Bohuslav Brouk
+Propojení sekundární sexuální zóny, rozvoj komunikace vzruchů od fluida pohlaví samotného s fetišem směrem do abstrakce
+
+Jedině takto lze poznat ještě vyšší tělesné.
+Chtějí se třást nekontrolovaně pouhým foukáním na loket.
+Ale nedají tomu dost, jsou to špatní - většinou submisivové.
+***
+Dávné rituály čaje jsou NAŠE dávné rituály čaje? Kolikrát se čaj mi vrátil?
+Někdy se vrátí jako jinotaj, jakože stichneš něčím.
+Takový jsem měl rituál
+Projednou si uděláme čaj, ten čaj nás naostří, sedneme do známého křesla, vnímáme okolní svět jako Růži nebo Lišku. Já raději Lišky.
+Divoce rostou růže v mojí zahradě. 
+
+***af xiv Let go meditace
+A celou dobu, ten borec mlel mantru letgou, letgou, ale nebylo to úplně letgou, bylo to taky trochu, jako letsgou, spíš lecgou. přídech c.
+A to už dva roky nechodila s tím lingvistou.
+***
+Přemoci bolest a podobná témata
+
+V jádru má zášleh, křeč
+to pod tím jádrem pošleš preč.
+***
+Už jsem v mahamudře. Někdy v budoucnu vědci teda najdou spojení mezi vnímáním na vyšší úrovni DLENÍ v jiném místě vědomí. Nějak kontextově navážeme jinak na své nervstvo Zvratně, nezvratně.
