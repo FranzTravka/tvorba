@@ -1,2 +1,1 @@
-# tvorba
-Web tvorby, literatura, poezie Franze Travky Franz Travka ne Kafka!
+# NTAT - převod poznámek Adama Taše (NTAT Adam Taš) zpracovává Franz Travka ne Kafka!
